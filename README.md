@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-RUJD841213HMSZRN00
+RUJD841213HMSZRN00
